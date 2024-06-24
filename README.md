@@ -1,5 +1,5 @@
 # DeepNude AI Tools List
-* <b>[Dreampaint.net - Nudify, Bukkake, Futanari, Tattoo and many more NSFW effects with AI (recommended)](https://www.dreampaint.net/?utm_source=github&utm_medium=paolinsta&utm_campaign=AI-best-tools)</b>
+* <b>[Dreampaint.net - Nudify, Bukkake, Futanari, Tattoo and many more NSFW effects with AI (recommended)](https://www.dreampaint.net/?utm_source=github&utm_medium=paolinsta&utm_campaign=AI-list-2)</b>
 
 * [SukebeZone](https://www.sukebezone.com/)
 * [Deepswap](https://www.deepswap.ai/)
